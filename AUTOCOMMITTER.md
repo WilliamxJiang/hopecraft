@@ -1,1 +1,1 @@
-A day on Earth used to be only 18 hours long.
+Cows can walk up stairs but not down.
