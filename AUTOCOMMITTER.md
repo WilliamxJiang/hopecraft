@@ -1,1 +1,1 @@
-You can’t hum while holding your nose closed.
+Your brain uses the same amount of power as a 10-watt lightbulb.
