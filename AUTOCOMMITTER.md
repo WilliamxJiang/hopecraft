@@ -1,1 +1,1 @@
-One spaghetti noodle is called a spaghetto.
+You can’t hum while holding your nose closed.
